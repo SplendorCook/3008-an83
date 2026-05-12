@@ -1,4 +1,4 @@
-#  
+#  3008 Scripts secret is the best 3008 Script, featuring anti-ban and auto-sell. Safe and powerful for all your needs.
 
 
 
